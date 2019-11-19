@@ -2,7 +2,7 @@
 
 #### binome
 Razafindrakoto maminiaina Christian   
-Rasamson Hajalalaina steven   
+Rasamison Hajalalaina steven   
 
 #### 
 
